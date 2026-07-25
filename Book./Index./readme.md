@@ -1,0 +1,2 @@
+https://www.audible.co.uk/pd/C-Concurrency-in-Action-Second-Edition-Audiobook/B082MRY285?overrideBaseCountry=true&bp_o=true&gclsrc=aw.ds&source_code=PS1PP30DTRIAL4530420263435&ipRedirectOverride=true&gad_source=1&gad_campaignid=20191453128&gbraid=0AAAAAD8-FqjAagbzHb96GLJEzeU56ysXf&gclid=CjwKCAjwmozTBhAeEiwAkEGZzjNaa9ZBkCVCmNbvaRmYipgUcIiR_oo2O_yoSo2SS_9GBLnT9aSPuhoC2LoQAvD_BwE
+
